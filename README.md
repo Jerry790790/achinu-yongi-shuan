@@ -1,1 +1,2 @@
-when the imposter is sus
+anda gay ❌❌❌❌❌❌
+anda budaya songsang ✅✅✅✅✅✔️✔️✔️✔️✔️🔥🔥🔥🔥
